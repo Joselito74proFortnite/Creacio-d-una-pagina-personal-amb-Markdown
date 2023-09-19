@@ -4,7 +4,7 @@
 
 # **Mis Intereses/Aficiones**
 
-1. Me gusta mucho la musica como tambien hacerla, desde mi perspeciva prefiero hacer musica antes que escucharla de algun artista
+1. Me gusta mucho la musica, crearla desde cero o directamente escucharla desde alguna plataforma como por ejemplo [Spotify](https://open.spotify.com/). Desde pequeño me ha interesado la musica ya que me he criado en una casa bastante ambientada a esta ya que como a mi, a toda mi familia le encanta la musica. En mis tiempos libres me gusta abrir [Fl Studio](https://www.image-line.com/) y empezar a crear melodias, cantar y producir en mis propios proyectos.
 
 2. Los videojuegos, para mi los videojuegos son una parte fundamental para el desarrollo de nuestras capacidades ya que nos pueden ayudar a mejorar nuestra velocidad de reaccion, socializar con otras personas y por ejemplo mejorar nuestro calculo mental.
 
