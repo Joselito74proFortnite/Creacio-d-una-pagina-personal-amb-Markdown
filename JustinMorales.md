@@ -14,7 +14,5 @@
 
 Por el momento cuento con unas cuantas cuentas abiertas por las redes, especificamente en: [Youtube](https://www.youtube.com/channel/UCGB9lFem70FKvphlf6NirZg), [Instagram](https://www.instagram.com/saikobeibe/), [Twitter](https://twitter.com/saikobeibe?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) y [Tiktok](https://www.tiktok.com/@saikobeibe?lang=es). 
 
-![Saiko](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWxGNP80FU1p2D4XUwfR3HPJPJmmS4Jvi05Q&usqp=CAU)
-
-![Saiko](https://i.makeagif.com/media/9-25-2022/n56a_0.gif)
+![Saiko](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWxGNP80FU1p2D4XUwfR3HPJPJmmS4Jvi05Q&usqp=CAU) ![Saiko](https://i.makeagif.com/media/9-25-2022/n56a_0.gif)
 
